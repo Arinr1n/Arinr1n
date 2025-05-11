@@ -1,5 +1,6 @@
 - Hello, Im Arin or Kyu
-- I use all pronouns, i mostly use He/they
+- Im bigender !
+- I use all pronouns, i mostly use She/He/They/Per !
 - Im interested with Forsaken,FNAF,Pjsk and other! (i forgor)
 - i would love to find people that have the same interest with me!
 -  Funfact : i like Seals :3 !
